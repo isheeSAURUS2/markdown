@@ -53,3 +53,4 @@ Champignonrisotto is een geruststellend en elegant gerecht dat perfect is voor d
 14. Serveer heet, gegarneerd met verse peterselie en eventueel extra Parmezaanse kaas.
 
 Geniet van je zelfgemaakte romige champignonrisotto! Het is een heerlijk en geruststellend gerecht dat zeker in de smaak zal vallen bij je tafelgenoten.
+[chatgpt](https://chat.openai.com/c/09b34817-2dad-4100-acd1-2243c256ebbb)
